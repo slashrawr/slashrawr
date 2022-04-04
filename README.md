@@ -13,7 +13,10 @@ The combination of a strong technical background and proven leadership qualities
 
 Continuous improvement and personal growth are key motivators for me. I am constantly pursuing opportunities to learn new things, be they skills, technologies, or topics to aid in thought leadership. Be it reading, online research, personal projects, or engaging with and learning from others, I strive to learn, grow and adapt on a daily basis.
 
-Check out my blog here: [Leader Kaizen](https://leaderkaizen.com)
+Check out my blog: [Leader Kaizen](https://leaderkaizen.com)
+<br/>
+Find me on twitter: [@slashrawr](https://twitter.com/slashrawr)
+<br/>
 Connect with me on [LinkedIn](https://www.linkedin.com/in/brandonmichaellewis).
 
 <h3 align="left">Connect with me:</h3>
